@@ -1,1 +1,1 @@
-# arete-hair-lounge
+# Areté Hair Lounge website
